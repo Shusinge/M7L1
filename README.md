@@ -1,0 +1,1 @@
+Membedakan kucing dengan Kuda
